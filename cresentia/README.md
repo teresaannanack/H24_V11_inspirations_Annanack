@@ -1,5 +1,5 @@
-Le nom d'exposition est Crescentia.
-L'exposition était mise au Collège Montmorency dans les deux locaux; le petit studio et le grand studio.
+#Le nom d'exposition est Crescentia.
+##L'exposition était mise au Collège Montmorency dans les deux locaux; le petit studio et le grand studio.
 Intérieur du CM dans le petit et grand studio.
 Je suis allée voir l'exposition le 20 mars, 2024.
 J'ai vue pas mal toute les dispositions/oeuvres.
