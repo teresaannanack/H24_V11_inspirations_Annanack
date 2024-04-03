@@ -11,6 +11,8 @@ Les finissants,
 
 ![photo](media/Effet-papillon.png)
 
+![photo](media/sonalux.png)
+
 2024.
 <p>"Crescentia", un nom évocateur qui trouve ses racines dans le latin, signifiant "croissance", embrasse le concept d'évolution sous différentes formes : organique, environnementale et psychologique. Cette exposition, présentée par les étudiants en techniques d'intégration multimédia du Collège Montmorency, célèbre cette idée à travers une diversité d'œuvres. Ces créations sont comme des organismes vivants en perpétuel mouvement, se métamorphosant sous l'influence des visiteurs qui interagissent avec elles, offrant ainsi une expérience immersive et dynamique. </p>
 
