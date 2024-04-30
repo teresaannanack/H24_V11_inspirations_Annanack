@@ -8,7 +8,7 @@ J'ai choisi le Voir le visible (le miroir) parce que ça me façionner beaucoup 
 
 ![photo](Miroir-infos.png.jfif)
 ![photo](Miroir-installation.png.jfif)
-![photo](Miroir-reflection.png.jfif)
+![photo](Miroir-refection.png.jfif)
 
 
 ## Les crédits
