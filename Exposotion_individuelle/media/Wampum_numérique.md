@@ -1,5 +1,5 @@
 # Wampum Numérique
-
+![photo](entree-mccord.jpg)
 
 
 ## Informations
