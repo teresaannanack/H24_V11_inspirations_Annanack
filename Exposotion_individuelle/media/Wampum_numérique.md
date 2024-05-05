@@ -21,12 +21,22 @@ Le public est cordialement invité à participer à un voyage en trois parties q
 
 ![photo](donna-mccord.jpg)
 
-## L'heures d'ouverture et leurs peix
-Quand je suis allée, j'avais pris l'avance d'acheter un billet pour aller visiter le musée pour la section d'Autochtones, mais quand je suis rentrée, c'était gratuit pour moi.
+## Troisième partie
+Narration en français et en innu par Joséphine Bacon, elle est une femme extraordinaire, elle à beaucoup à raconter.
+Il y avait aussi d'autres autochtones qui parlait dans le vidéo.
+
+
+![photo](josephine-mccord01.jpg)
+
 # HEURES D'OUVERTURE DU MUSÉE ET TARIFS
+Quand je suis allée, j'avais pris l'avance d'acheter un billet pour aller visiter le musée pour la section d'Autochtones, mais quand je suis rentrée, c'était gratuit pour moi.
+
 Mardi, jeudi et vendredi de 10 h à 18 h. | Mercredi de 10 h à 21 h | Samedi et dimanche de 10 h à 17 h
 Adultes : 19 $ | Aînés : 17 $| Étudiants (13 à 30 ans) : 14 $ | 12 ans et moins : gratuit | Autochtones : gratuit |
 
 
 
 ![photo](mccord-ecrans.png)
+
+## Liens vers le site web de McCord
+<https://www.musee-mccord-stewart.ca/fr/expositions/voix-autochtones-aujourdhui/>
