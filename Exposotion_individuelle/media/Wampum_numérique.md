@@ -11,7 +11,7 @@
 Pour aller à le Musée, il y a un gros Inukshuk juste près de le bâtiment.
 
 Voix autochtones d'aujourd'hui : Savoir, traumatisme, résilience est une exposition permanente depuis le 25 septembre 2021. 
-Elisabeth Kaine, conservatrice de Huron-Wandatt, avait créé cette exposition qui comprend certaines artifacts et de témoignanges de membres des 11 autochtones du Québec.
+Elisabeth Kaine, conservatrice de Huron-Wandatt, avait créé cette exposition qui comprend certaines artifacts et de témoignanges de membres des 11 autochtones du Québec. La collection Culture autochtones du Musée McCord à soixantaine d'objets qui illustrent plusieurs thèmes, dont le nomadisme, la valeur de la chasse et de la pêche, la spiritualité et le rôle d'un enfant.
 
 ![photo](josephone_bacon.jpg)
 
@@ -37,6 +37,7 @@ Adultes : 19 $ | Aînés : 17 $| Étudiants (13 à 30 ans) : 14 $ | 12 ans et mo
 
 
 ![photo](mccord-ecrans.png)
+C'était une belle expérience, j'y retourner plusiueurs fois. Ça me donne le réconfort et je peux aussi éduquer les gens qui ne sont pas au courant des peuples autochtones et de ce que mes ancêtres ont dû endurer. Je recommend fortement à des gens de visiter cette exposition.
 
 ## Liens vers le site web de McCord
 <https://www.musee-mccord-stewart.ca/fr/expositions/voix-autochtones-aujourdhui/>
