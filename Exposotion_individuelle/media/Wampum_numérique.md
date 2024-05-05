@@ -38,6 +38,7 @@ Adultes : 19 $ | Aînés : 17 $| Étudiants (13 à 30 ans) : 14 $ | 12 ans et mo
 
 
 ![photo](mccord-ecrans.png)
+
 C'était une belle expérience, j'y retourner plusiueurs fois. Ça me donne le réconfort et je peux aussi éduquer les gens qui ne sont pas au courant des peuples autochtones et de ce que mes ancêtres ont dû endurer. Je recommend fortement à des gens de visiter cette exposition.
 
 ## Liens vers le site web de McCord
