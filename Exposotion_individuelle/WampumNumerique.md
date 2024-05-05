@@ -1,4 +1,3 @@
-# Wampum Numérique 
-## La fin
+# Wampum Numérique
 
-Je suis allée visiter le Musée McCord le 18 avril 2024
+Je suis allée visiter le Musée McCord le 18 avril 2024. 
