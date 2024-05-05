@@ -5,7 +5,7 @@
 ## Informations
 * Type d'expositions: intérieur
 * Date de visite: 18 avril 2024 et 28 avril 2024
-* Type d'installation: non intéractif pour la dernière sectiction d'exposition.
+* Type d'installation: non intéractif pour la dernière section d'exposition.
 
 ## Voix Autochtones
 Pour aller à le Musée, il y a un gros Inukshuk juste près de le bâtiment.
