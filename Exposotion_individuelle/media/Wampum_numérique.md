@@ -1,5 +1,9 @@
 # Wampum Numérique
 
-Je suis allée visiter le Musée McCord le 18 avril 2024. 
+
+
+## Informations
+* Type d'expositions: intérieur
+* 
 
 ![photo](mccord-ecrans.png)
