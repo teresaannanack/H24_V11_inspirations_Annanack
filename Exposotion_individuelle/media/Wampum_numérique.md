@@ -17,7 +17,8 @@ Elisabeth Kaine, conservatrice de Huron-Wandatt, avait créé cette exposition q
 
 
 ## Deuxième partie
-Le public est cordialement invité à participer à un voyage en trois parties qui met en lumière la sagesse, les traumatismes et l'extraordinaire résilience des peuples autochtones. Cette exposition me donne un sentiment de paix et de douleur en même temps, mais ça me guérit parce que j'ai aussi appris de ce qu'ils on vécus dans le passée. 
+Le public est invité à participer à un voyage en trois parties qui met en lumière la sagesse, les traumatismes et l'extraordinaire résilience des peuples autochtones. La zone aborde des questions importantes telles que la pauvreté, l'injustice à l'égard des alloctones, la loi sur les Indiens et la perte des enfants et de leur langue maternelle.
+Cette exposition me donne un sentiment de paix et de douleur en même temps, mais ça me guérit parce que j'ai aussi appris de ce qu'ils on vécus dans le passée. 
 
 ![photo](donna-mccord.jpg)
 
